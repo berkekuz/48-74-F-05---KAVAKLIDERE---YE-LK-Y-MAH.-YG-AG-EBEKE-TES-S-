@@ -1,0 +1,3 @@
+CEKA PRO
+LAPTOP-9ALO99LR 
+11 Kasým 2021 Perþembe  12:37:22
